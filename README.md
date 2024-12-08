@@ -1,5 +1,5 @@
 - 🩸 Hi, I’m @itzloomis
-- 🩸 I’m interested in splatoon, scream, seals, top gun, the crow, red eye, ect...
+- 🩸 I’m interested in splatoon, scott pilgrim, scream, seals, top gun, the crow, red eye, ect...
 - 🩸 I’m currently learning bass guitar! but my main instrument is violin!
 - 🩸 How to reach me: ponytown!
 - 🩸 Pronouns: they/them
