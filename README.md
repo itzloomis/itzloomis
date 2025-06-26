@@ -1,8 +1,8 @@
-- 🩸 Hi, I’m @itzloomis
-- 🩸 I’m interested in splatoon, scott pilgrim, donnie darko, uglydolls,wolverine,scream,seals,top gun,the crow,red eye,mcsm, ect...
-- 🩸 I’m currently learning bass guitar! but my main instrument is violin!
-- 🩸 How to reach me: ponytown!
-- 🩸 Pronouns: any
-- 🩸 Fun fact: not really social...lol (art by @searift on tumblr)
+- 🩸 hi, I’m loomis
+- 🩸 i’m interests are on my strawpage
+- 🩸 i’m currently learning bass guitar! but my main instrument is violin!
+- 🩸 how to reach me: ponytown!
+- 🩸 pronouns: any
+- 🩸 fun fact: not really social (art by @searift on tumblr)
 
- <img src="https://64.media.tumblr.com/11b2622f2e6ba9bf169cc7075bf88b8d/3a4773f02d6d7fe2-10/s640x960/73ebd7cc15b525299d8b638c4fce8be37391b60f.jpg" alt="look away – @searift on Tumblr"/>
+(image-url)https://i.pinimg.com/736x/bc/52/0d/bc520d0ff7eb08e6a99f89ff91c23dfa.jpg
