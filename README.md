@@ -1,6 +1,1 @@
-- 🩸 hi, I’m loomis
-- 🩸 i’m interests are on my strawpage
-- 🩸 i’m currently learning bass guitar! but my main instrument is violin!
-- 🩸 how to reach me: ponytown!
-- 🩸 pronouns: any
-- 🩸 fun fact: not really social (https://i.pinimg.com/736x/bc/52/0d/bc520d0ff7eb08e6a99f89ff91c23dfa.jpg)
+image_url(https://i.pinimg.com/736x/bc/52/0d/bc520d0ff7eb08e6a99f89ff91c23dfa.jpg)
